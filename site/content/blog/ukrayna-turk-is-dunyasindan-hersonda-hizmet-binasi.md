@@ -1,0 +1,33 @@
+---
+title: 'Ukrayna Türk İş Dünyası’ndan Herson’da Hizmet Binası'
+date: Tue, 28 Oct 2014 18:19:10 +0000
+draft: false
+tags: ["ali bulut", "Çetin Yılmaz", "herson", "Herson Temsilciliği", "Necati Özil", "nur sağman", "Osmo Lipponen", "TUİD (Türk Ukrayna İşadamları Derneği)", "Yönet Can Tezel", "Ziya Taşkent"]
+type: post
+---
+
+[
+](https://burakpehlivan.org/wp-content/uploads/2014/10/kurdela1.png) [![kurdela1](https://burakpehlivan.org/wp-content/uploads/2014/10/kurdela1.png)](https://burakpehlivan.org/wp-content/uploads/2014/10/kurdela1.png)
+Türk Ukrayna İşadamları Derneği’nin(TUİD), Herson’daki hizmet binasının açılışı Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel, Avrupa Güvenlik ve İşbirliği Teşkilatı (AGİT) Herson gözlem heyet başkanı Finli Büyükelçi Osmo Lipponen, T.C Odesa Başkonsolosu Nur Sağman, TUİD yönetim kurulu başkanı Cem Murat Aytaç, TİKA Ukrayna Program Koordinatörü Hacı Bayram Bolat, T.C. Odesa Ticaret müşaviri Çetin Yılmaz, THY birinci bölge pazarlama başkanı Ziya Taşkent, TUİD yönetim kurulu üyeleri, THY yöneticileri Ukrayna Ahıska toplumu önderleri, Kiev, Herson ve Odesa’dan yüzlerce Türk ve Ukraynalı işadamı ve basın mensuplarının katılımıyla, TUİD Herson temsilcisi Ali Bulut’un ev sahipliğinde gerçekleşti.
+
+[![img_1030](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1030.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1030.jpg)
+Organizasyonun açılış konuşmasını yapan Ali Bulut, 2004 yılından beri Ukrayna’da faaliyet gösteren Türk Ukrayna İşadamları Derneği’nin Herson’da son bir yıldır temsilciliği olduğunu, bugün ise bu temsilciliği müstakil bir binaya taşıdıklarını belirtti. Bulut, Ukrayna Türk iş dünyasının çatı kuruluşu olmanın sorumluluğunu taşıdıklarını, bu hizmet binasının yalnız TUİD üyesi işadamlarının değil, iki ülke arasında ticareti olan, ya da ticaret yapmak isteyen tüm Ukraynalı ve Türk işadamlarının hizmetinde olduğunun altını çizdi. TUİD Herson temsilcisi sözlerini, “THY seferlerinin başlaması bölgedeki ekonomik canlılığı artıracaktır, Ukrayna’daki tarım sektörünün merkezi, liman kenti Herson’un geleceği parlaktır, biz Türk işadamlarını bu şehre yatırım yaparak Ukrayna’nın parlak geleceğine katkıda bulunmaya çağırıyoruz” diyerek sonlandırdı.
+
+[![img_1046](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1046.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1046.jpg)
+T.C. Kiev Büyükelçisi Yönet Can Tezel ise, Türk Ukrayna İşadamları Derneği’nin, etkinliklerinin, Ukrayna’daki ekonomik olumsuzluklara rağmen hız kesmeden devam ettiğini ve böyle zor bir dönemde TUİD’in iki ülke iş dünyasının işbirliğini artırmasına katkıda bulunduğunu hatırlatarak, Herson’daki başarılı faaliyetlerinden dolayı Ali Bulut’un şahsında TUİD yönetimini tebrik etti.
+
+[![img_1042](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1042.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1042.jpg)
+TUİD Herson temsilcilik binasının açılışına maiyetiyle katılan AGİT Herson gözlem heyeti başkanı büyükelçi Osmo Lipponen, Türk işadamlarının burada gördüğü enerjisinden ve dinamikliğinden etkilendiğini belirtirken, bu temsilciliğin ve Türk Havayolları’nın İstanbul-Herson seferlerini başlatmasının, şehirdeki ticari ve ekonomik yaşama ciddi katkısının olacağından şüphesi olmadığını söyledi.
+
+[![img-20141015-wa0036](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141015-wa0036.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141015-wa0036.jpg)
+TUİD yönetim kurulu başkanı Cem Murat Aytaç ise, Kiev merkezli derneğin, yalnız Ukrayna’nın başkentinde faal olmadığını, Odesa, Harkov ve Herson’da temsilcilikleri vasıtasıyla ülkenin geneline yayıldığını belirtirken, “önümüzdeki dönemde Ukrayna’nın başka şehirlerinde de yapılanmalarımız olacak, İstanbul temsilciliğimiz ise özellikle Türkiye’de iş yapmak isteyen Ukraynalı dostlarımızın hizmetindedir, biz iyi bir komşu ve dost olarak yalnız Ukrayna’nın iyi gününde değil, yatırımlarımızla bu güzel ülkenin kötü gününde de yanındayız” dedi. Aytaç, bundan sonra da Türk iş dünyasının Ukrayna’da ve bölge ülkelerinde, Ukraynalı işadamlarının ise Türkiye’de sesi olmaya devam edeceklerini belirterek sözlerinin tamamladı.
+
+[![img_1024](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1024.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img_1024.jpg)
+Açılış sonrası TUİD Web’e kısa bir röportaj veren Türk Ukrayna İşadamları Derneği başkanvekili Burak Pehlivan, “Ukraynalı dostlarımızın bize anlattığına göre bu açılış bugüne kadar Herson’da gerçekleştirilen en canlı, etkileyici açılışlardan biri olmuş. Ukrayna’da, Türk, Ukraynalı ya da hangi milletten olursa olsun işadamlarının morale, başarı hikayelerine ihtiyacı var. Bu noktada hem THY seferlerinin başlaması hem de TUİD’in hizmet binasının açılışı, Herson’a bir hareketlilik getirdi. Hatta içinde bulunduğumuz dönemin hassasiyetinden dolayı bu yatırımlar Ukrayna ulusal medyasında da geniş yer buldu. Herson temsilcimiz Ali Bulut, Ukrayna’da bir Türk işadamı olarak, yalnız Türkler tarafından değil, Ukraynalılar tarafından da tarım sektörünün duayenlerinden biri olarak kabul ediliyor, artık kendisinin deneyimlerinden Türk iş dünyasının daha fazla istifade etme imkanı olacak. Biz Türk sermayesinin özellikle Ukrayna’da tarım sektörüne yatırım yapmaya davet ediyoruz. Ali Bey’in de altını çizdiği gibi bu merkez yalnız üyelerimizin değil, talepte bulunan tüm Türk ve Ukraynalı işadamlarımızın hizmetindedir” dedi. Pehlivan yeni merkezlin hayırlı olmasını dileyerek sözlerini tamamladı.
+
+[![img-20141016-wa0008](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0008.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0008.jpg)
+TUİD Herson Hizmet Binasının açılışı programı açılış sonrası Türk Ukrayna İşadamları derneğinin başta büyükelçi T.C. Kiev büyükelçisi Yönet Can Tezel olmak üzere katılımcılar onuruna verdiği yemek ile sona erdi.
+
+Kaynak: TUİD Web
+
+[![img-20141016-wa0032](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0032.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0032.jpg) [![img-20141016-wa0040](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0040.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa0040.jpg) [![img-20141016-wa00211](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa00211.jpg)](https://burakpehlivan.org/wp-content/uploads/2014/10/img-20141016-wa00211.jpg) [![kurdela1](https://burakpehlivan.org/wp-content/uploads/2014/10/kurdela11.png)](https://burakpehlivan.org/wp-content/uploads/2014/10/kurdela11.png)

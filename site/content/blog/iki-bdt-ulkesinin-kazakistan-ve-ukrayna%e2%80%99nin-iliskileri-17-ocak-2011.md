@@ -1,0 +1,27 @@
+---
+title: 'İki BDT Ülkesinin, Kazakistan ve Ukrayna’nın İlişkileri'
+date: Sun, 16 Jan 2011 21:55:55 +0000
+draft: false
+tags: ["Baykonur Uzay Üssü", "BDT Ülkeleri", "Çarlık Rusyası", "Orta Asya Türk Cumhuriyetleri", "Rusya Beyaz Rusya Gümrük Birliği", "Sovyetler Birliği", "Ukrayna Dış İlişkileri", "Ukrayna Kazakistan İlişkileri"]
+type: post
+---
+
+
+
+
+
+
+
+
+
+
+
+
+![ukraynakazanistanq24](http://www.turkhaber.com.ua/images/stories/ukraynakazanistanq24.png)
+
+Zaman  zaman yazılarımda Ukrayna’nın, kendisi için önemli olan siyasi ve ekonomik partnerlerini ele alıyorum.Bu ülkeler arasında en önemlileri başta Rusya olmak üzere BDT ülkeleri, AB’nin büyük ekonomileri olan Almanya, Fransa, İtalya, İngiltere, bir başka AB ülkesi ve Ukrayna’nın komşusu Polonya, dünyanın en hızlı büyüyen ekonomilerinden biri olan ve ikinci büyük ihracatçısı haline gelen Çin, Okyanus ötesinden süper güç ABD ve tabii ki Türkiye’dir.Bu yazıda bir BDT ülkesi olan Kazakistan’ a ve bu ülkenin Ukrayna ile ilişkilerine değineceğim. Bilindiği üzere Kazakistan yakın zamanda Rusya ve Beyaz Rusya ile gümrük birliği oluşturarak dikkatleri üzerine çekmişti.
+Kazakistan, Ortaasya’da 2,7 milyon km2’lik yüzölçümüne sahip, 15 milyon nüfuslu  genç bir ülke. Kişi başına geliri satınalma gücü paritesine göre 12.500 $ .Ülkenin çok karışık bir etnik ve dini yapısı olmasına rağmen, 20 yıldan fazla bir zamandır ülkeyi yöneten Nazarbayev herhangi bir iç karışıklığa mahal vermeden, Kazakistan’ı Orta Asya’nın cazibe merkezi haline getirmiş durumda. Halbuki 90’lı yılların başında nüfusu 30 milyona yaklaşan ve halkı ticareti çok daha iyi bilen Özbekistan’ın Orta Asya’nın ticaret merkezi olması bekleniyordu.Ancak Özbekistan’da çıkan iç karışıklıklar ve rejimin bu karışıkları sert tepki vermesi, siyasette ve ekonomide uygulanan baskıcı politikalar, bu rolü Kazakistan’ın çalmasına yol açtı. Kazakistan her ne kadar zengin petrol ve doğalgaz rezervleri ile gündeme gelse de Mendelev’in periyodik cetvelinde yer alan bütün elementler bu zengin coğrafyada bulunuyor. Bir zamanlar Sovyetler Birliği’nin bugün ise Rusya Federasyonunun uzay programının gerçekleştirildiği Baykonur uzay üssü bu ülke topraklarında yer alıyor. Rusya bu üssün ve çevresindeki alanın(yaklaşık Kıbrıs büyüklüğünde) kullanım hakkını 2050 yılına kadar kiralamış durumda. Ülkenin sahip olduğu zengin doğal kaynakların yanı sıra bu üs Kazakistan’ın jeopolitik önemini daha da artırıyor.
+Kazakistan’ın nüfusunun yarısından biraz fazlası Kazak kökenli. Bir zamanlar nüfusun yarısını teşkil eden Ruslar ise Sovyetler Birliği’nin çöküşünden sonra gerek Rusya’ya göçler ve gerekse doğum oranlarının düşük olması sebebiyle oransal olarak hızla azalarak, bugün nüfusun %30’una düşmüş durumdalar. Buna karşılık ülkede teknik branşlar ve bürokraside Rusların ciddi bir ağırlığı var.Kazak liderliği Rusya ile iyi ilişkileri benimsemiş. Her yerde, günlük yaşamda, bürokraside, eğitimde Rusça özgürce kullanılabiliniyor. Nüfusun yalnızca %65’i Kazakça’ya hakimken, %95’i Rusça konuşabiliyor. Kazaklar ve Ruslar dışında kalan %17’lik bölüm ise Uygur, Özbek, Alman, Tacik, Türkmen, Ukraynalı gibi onlarca etnik kökenden oluşuyor. Bugün, Kazakistan’ın nüfusunun, %3,7’sini oluşturan 300.000’den fazla Ukraynalı, 19 yüzyılda, Çarın, bu bölgeden toprak verdiği dönemin topraksız Ukraynalıları’nın torunları. Bu diaspora nüfusu iki ülke ilişkilerinde, Sovyetler Birliği’nin ortak ekonomi ve kültür mirasını paylaşmanın yanı sıra etkinler.
+Kazakistan ve Ukrayna arasındaki ticaret hacmi 2008 yılında tarihinin zirvesine çıktı ve 4,9 milyar $ olarak gerçekleşti.Bu ticaret hacmi ile Kazakistan, Ukrayna’nın en büyük 8. dış ticaret partneri oldu. Ukrayna, Kazakistan’ın ise 5. sıradaki ticari partneri. Bu arada belirtmek gerekir ki, soydaş Kazakistan’ın ne ithalatta ne de ihracatta ilk 5 ticari ortağı arasında, Türkiye yer almıyor.Ukrayna, Kazakistan’a ağırlıklı olarak makine ve metal satarken, bu kaynak yönünden güçlü Orta Asya Türk Cumhuriyeti’nden tarım ürünleri ve kimyasallar alıyor. Ukrayna’nın mevcut dış ticaret hacmini kendi lehine artırabilmesi için, Kazak doğalgazına doğrudan ulaşabilmesi gerekiyor, zira mevcut durumda Rusya, Kazakistan ve Türkmenistan’dan aldığı doğalgazı kendi gazı ile paçal edip, aralarında, Ukrayna’nın da bulunduğu Avrupa ülkelerine yüksek kar marjları ile satıyor.Ukrayna’nın doğrudan gaz alımı şu an için ütopik gözüküyor çünkü boru hatları Rusya’nın elinde ancak dünden bu işler planlanmış olsaydı hem Kazakistan daha yüksek gelir rakamlarına ulaşacaktı hem de Ukrayna’nın enerji bağımlı sanayisi kadar ulusal bağımsızlığı için de önemli olan gaz tedarik sorunu, ülke açısından daha iyi biçimde çözümlenmiş olacaktı.Halbuki bu tip stratejik adımlar atmaktansa Ukrayna liderliği, ülkede hakim dilin Rusça mı, Ukraynaca mı olması gerektiği gibi konularda kafa yormayı tercih etti. Ukrayna, Sovyetler Birliği ve Çarlık Rusyası’ndan kaynaklanan ortak mirasını ticaret açısından kullanmalı. Kaldı ki 300 milyonluk bu coğrafyada Rusça hemen hemen ortak dil ve her yerde konuşuluyor.Rusça’yı emperyalizmin bir aracı olarak görmektense, bu coğrafyanın zenginliği olarak görmek Ukrayna’nın yararınadır. Ulusal çıkarları ise enerji ve ticaret alanında korumak, Kazakistan  gibi ortak dil ve kültür mirasına sahip ülkeler ile işbirliğini genişletmek Ukrayna halkının refahına ve ülkenin egemenliğine daha fazla katkıda bulunacaktır.
+
+Burak PEHLİVAN

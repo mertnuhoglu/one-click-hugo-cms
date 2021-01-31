@@ -1,0 +1,38 @@
+---
+title: 'Türkonfed Başkanı Kadooğlu: “Ukrayna önemli yatırım fırsatları sunuyor ve Türk iş dünyasının daha çok ilgisini hak ediyor “'
+date: Thu, 31 Mar 2016 20:12:22 +0000
+draft: false
+tags: ["Faruk Ekinci", "Hasan Kamil Hayali", "Nuri As", "Selahattin Balkan", "Senan İdin", "Serbest Ticaret Antlaşması", "Tarkan Kadooğlu", "TUİD (Türk Ukrayna İşadamları Derneği)", "Türkiye Ukrayna Serbest Ticaret Antlaşması", "türkonfed", "TUSİAD", "Yönet Can Tezel"]
+type: post
+---
+
+[![IMG-20160331-WA0005](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA00051.jpg)
+
+Türkiye’nin gönüllülük esasına göre kurulmuş olan en büyük işinsanları organizasyonu olan Türkonfed’in yönetim kurulu başkanı, TÜSİAD üyesi Tarkan Kadooğlu, Ukrayna’daki temaslarına, Türkonfed üyesi Uluslararası Türk Ukrayna İşadamları Derneğini(TUİD) ziyaret ederek başlarken, kendisine yine TÜSİAD üyeleri, Türkiye Irak İşadamları Derneği başkanı Selahattin Balkan, Ekinciler Holding yönetim kurulu başkanı Faruk Ekinci, Türkonfed yönetim kurulu üyesi ve Aves Holding yönetim kurulu başkanı Senan İdin, Türkonfed üyesi, Gaziantepli işadamı Mehmet Zeki Yardımcı ile Türkonfed başkan yardımcısı ve Ukrayna Sanayi ve Ticaret Odası Türkiye resmi temsilcisi Hasan Kamil Hayali de eşlik etti.
+
+**Türkonfed, Ukrayna'ya daha çok Türk yatırımı çekilmesi ve iki ülke ticaret hacminin artması için önemli çalışmalar  yapıyor
+** 
+
+Ziyarette, TUİD başkanvekili Burak Pehlivan, Ukrayna ekonomisi hakkında konuklara kısa bir sunum yaparken, Türkonfed yönetiminin 2016 yılında Brüksel’den sonraki ikinci yurtdışı çalışma ziyaretini Kiev’e yaparak Ukrayna’ya verdikleri önemi göstermelerinden dolayı başkan Kadooğlu’na müteşekkir olduklarını belirtti. Pehlivan, “üyesi olmaktan gurur duyduğumuz Türkonfed’in özellikle Türkiye Ukrayna Serbest Ticaret Antlaşmasının(STA) müzakere sürecinde büyük desteğini görürken Türkonfed çatısı altında birçok konferansta,  Ukrayna’yı, Türkiye’de iş dünyamıza daha iyi tanıtma imkânı bulduk. Türkonfed içeride ve dışarıda Ukrayna için çok önemli, hatırı sayılır lobi faaliyetleri gerçekleştiriyor” dedi.
+
+**20 milyar dolarlık Türkiye Ukrayna dış ticaret hacmine ulaşmak için, Serbest Ticaret Antlaşması şart**
+
+Türkonfed yönetim kurulu başkanı Tarkan Kadooğlu, TUİD’in kurucu üyesi olduğu Türkonfed International ile kurumun tarihinde ilk kez uluslararası bir yapılanmayı geçen yıl oluşturduğunu ve bu yapının yurtiçindeki ve yurtdışındaki Türk işadamları arasındaki ilişkilerin gelişmesine önemli katkıda bulunacağını belirtti. Kadooğlu, “Türkiye ve Ukrayna ekonomik ilişkileri olması gerektiğinden çok uzak, gerçek ticari potansiyelini yansıtmıyor, 2023’de 20 milyar dolarlık Türkiye Ukrayna dış ticaret hacmi hedefine ulaşmak istiyorsak, daha çok çalışmalıyız, bunun için ise imzalanması artık son aşamaya gelen Ukrayna Türkiye Serbest Ticaret Antlaşmasının yürürlüğe alınması gerekiyor” dedi. Türkonfed başkanı, son 4-5 aydaki her yönetim kurulu toplantılarında Ukrayna’nın bir gündem maddesi olduğunu, bu ülkeyi Türk iş dünyasının yeterince tanımadığını ve Ukrayna’ya Türk işinsanlarını çok daha ilgi göstererek bu ülkeye yatırım yapması gerektiğine dikkat çekerken, Türkonfed’in Türkiye ve Ukrayna arasında adeta ticaret köprüsü oluşturacağını ifade etti. Başkan Kadooğlu, sözlerini, TUİD’in Türkonfed’i ve Ukrayna Türk iş dünyasını son derece başarıyla temsil ettiğini belirterek tamamladı.
+
+**TUİD, yurtdışındaki Türk işadamları için örnek bir model oluşturuyor**
+
+Türkonfed’in uluslararası ilişkilerden sorumlu başkan yardımcısı ve dışillişkiler-AB komisyonu başkanı Hasan Kamil Hayali ise, görevi gereği yurtdışında birçok ülkede bulunduğunu ve onlarca Türk işinsanı derneğiyle teması olduğunu ifade ederken, Uluslararası Türk Ukrayna İşadamları Derneği’nin bu dernekler arasında müstesna bir yere sahip olduğunu belirtti. Hayali,”TUİD gerek bölgesel, gerek sektörel temsil kapasitesiyle adeta kılcal damarlar gibi Ukrayna’nın her yerine ulaşmış durumda, yaptığı faaliyetlerle yurtdışında dernekçiliğin nasıl yapılması gerektiği konusunda örnek bir model oluşturuyor” derken, Türkonfed olarak başkan Tarkan Kadooğlu’nun çizdiği vizyon doğrultusunda 2016 yılında Ukrayna’yı radarlarına alacakların ve bu ülkeyle ilgili çalışmalarını hızlandıracaklarını söyledi.
+
+**Ukrayna Türk iş dünyasının, serbest ticaret antlaşması konusunda yaptığı çalışmaları takdir ediyoruz**
+
+Türkonfed heyeti, TUİD ziyareti sonrasında, Türkiye Cumhuriyeti Kiev Büyükelçisi Yönet Can Tezel tarafından kabul edildi. Kabulde, büyükelçi Tezel Türkiye’yi Ukrayna’da, Ukrayna’yı ise Türkiye’de daha çok görmek istediklerinin altını çizerken,  Ukrayna Türk iş dünyasının bu noktadaki çalışmalarını takdir ettiklerini söyledi. Tezel, 30’dan fazla ülke ile Türkiye’nin STA imzaladığını, bu konuda önemli deneyimi olduğunu ve Türkiye Ukrayna STA’sının ikili ticaret hacmini artırmak yoluyla, pastayı büyüteceğini, bunun sonucunda hem büyüyen pasta hem ise Türkiye’den, Ukrayna’ya daha fazla yatırım gelmesiyle, STA’dan Ukrayna tarafının daha çok fayda sağlayacağını ifade etti. Yönet Can Tezel, Türkonfed heyetinin Ukrayna’ya yaptığı ziyaretten duyduğu memnuniyeti dile getirirken, bu seviyede üst düzey Türk işadamı heyetlerini Ukrayna’da daha çok görmek istediklerini söyleyerek sözlerini tamamladı.
+
+**Ukraynalı işinsanları TUİD üzerinden ülkemize, Türk işinsanları ise TUİD vasıtasıyla Ukrayna'ya açılabilir**
+
+Türkonfed Başkanı Tarkan Kadaooğlu elçilikteki kabulleri esnasında yaptığı konuşmada, üyelerinin Ukrayna’dan Türkiye’ye yapılan ithalatın %75’ini gerçekleştirdiğini, kurum olarak Ukrayna Türkiye STA’sının imzalanması noktasında, iş dünyası olarak üstlerine düşen görevi yaptıklarını ve yapacaklarını belirtirken, TUİD’in bu konudaki çalışmalarını büyük bir takdirle gözlemlediklerini ve desteklediklerini söyledi. Başkan Kadooğlu, “Ukrayna’da, TUİD, iş dünyamızı büyük bir başarıyla, örnek bir dinamizm ve enerjiyle temsil ediyor, TUİD’in çalışmamalarının sonuna kadar arkasındayız, Ukraynalı işinsanları TUİD üzerinden ülkemize, Türk işinsanları ise yine TUİD vasıtasıyla Ukrayna’ya açılabilirler” dedi.
+
+Son olarak söz alan Türkonfed yönetim kurulu üyesi ve Aves Holding yönetim kurulu başkanı Senan İdin, Ukrayna’dan Türkiye’ye ihraç edilen ayçiçeğin %75’den fazlasının alıcısının Ukrayna’da son yıl yaşanan ekonomik kriz öncesi kendileri olduğunu ve Mersin’deki günlük 2500 ton kapasiteli yağ fabrikalarının Avrupa’nın en büyüğü olduğunu hatırlatırken, geçen sezon Ukrayna’dan her şeye rağmen 400.000 ton ayçiçeği ve 300.000 ton soya aldıklarını söyledi. İdin, Türkiye Ukrayna STA’sını destekliyor ve iş dünyasının temsilcileri olarak bu yıl içerisinde imzalanması umuyoruz” diyerek sözlerini tamamladı.
+
+Türkonfed heyetinin, büyükelçi Tezel tarafından kabulü, hatıra fotoğrafı çekilmesiyle sona ererken. Türkonfed başkanı Tarkan Kadooğlu, Kırım Türkleri’nin efsanevi lideri, Ukrayna Parlamentosu milletvekili ve Nobel Barış ödülü adayı Mustafa Cemiloğlu ile bir de görüşme gerçekleştirdi.
+
+![IMG-20160331-WA0006](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0006.jpg) [![IMG-20160331-WA0010](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0010.jpg) [![IMG-20160331-WA0003](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/03/IMG-20160331-WA0003.jpg)

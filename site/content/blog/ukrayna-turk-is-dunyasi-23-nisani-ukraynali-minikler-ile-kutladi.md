@@ -1,0 +1,37 @@
+---
+title: 'Ukrayna Türk iş dünyası 23 Nisan''ı Ukraynalı minikler ile kutladı'
+date: Mon, 24 Apr 2017 20:32:03 +0000
+draft: false
+tags: ["23 Nisan", "23 Nisan Çocuk Bayramı", "23 Nisan Ukrayna", "26 Nisan Çernobil", "26 Nisan Çernobil Nükleer Felaketi", "cernobil", "TUİD (Türk Ukrayna İşadamları Derneği)"]
+type: post
+---
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3963-75.jpg)
+
+ 
+
+23 Nisan Ulusal Egemenlik ve Çocuk Bayramını, Ukrayna’daki Türk iş dünyası her yıl olduğu gibi bu yıl da Çernobil Çocukları Vakfıyla ortak bir organizasyonla kutlarken, organizasyon çerçevesinde aynı zamanda 31 yıl önce\\ 26 Nisan 1986 yılında gerçekleşen Çernobil Nükleer Felaketi de anıldı. Etkinliğe fonun himayesindeki 55 Ukraynalı minik katıldı.
+
+Kiev Mangal restoranda düzenlenen faaliyetin başında bir konuşma yapan Ukrayna Çernobil Çocukları Vakfı başkanı Svetlana Vasilyevna, insanlığın kendi eliyle yol açtığı en büyük felaket olan Çernobil Nükleer Kazası sonrasında yayılan radyosunun etkilerinin, kalıtım ve radyoaktif sızıntının çevrede yol açtığı tahribattan dolayı azalarak da olsa günümüze kadar geldiğini hatırlattı. Vasilyevna, kazadan en çok etkilenen bölgelerin başında gelen Jitomir şehrinin Ovruç Kasabası’nda yaşayan çocukların her yıl Türk iş dünyasının maddi ve manevi desteğini gördüğünü belirterek, “Türk işadamları bizi yalnızca 23 Nisan’da ya da 26 Nisan’da değil yıl boyunca hatırlıyorlar, ne zaman bir yardım istesek yanımızdalar” dedi. Fonun himayesindeki çocukların her yıl bir Türk restoranında misafir edilerek, farklı bir kültürü tanımalarının sağlandığını ayrıca ülkenin başkenti Kiev’in gezildiğini, türlü armağanlar takdim edildiğini, müze, eğlence yerlerinin görüldüğünü ve bazı çocukların Türkiye’ye tatile gönderildiğini belirten Svetlana Vasilyevna, Türk iş dünyasının samimi desteğine minnettar olduklarını söylerken, altı yıldır üst üste Uluslararası Türk Ukrayna İşadamları Derneği(TUİD) tarafından düzenlenen kutlama ve anma organizasyonu için Ukrayna’daki Türk işadamlarına teşekkür etti.
+
+TUİD yönetim kurulu başkanı Burak Pehlivan, dernek olarak yılda 50’nin üzerinde faaliyet yaptıklarını ancak bu faaliyetlerden en önemlisinin bu faaliyet olduğunu zira bu etkinliğin Ukrayna’nın geleceği yani Ukrayna’nın çocuklarıyla ilgili oldunu ifade etti. Pehlivan sözlerine  “her yıl Nisan ayının son haftasında hem 26 Nisan Çernobil felaketini anıyor hem de Türkiye Cumhuriyetinin kurucusu Mustafa Kemal Atatürk tarafından yalnız Türk çocuklarına değil, tüm dünya çocuklarına da armağan edilen 23 Nisan Çocuk Bayramı’nı burada sizlerle Ukraynalı kardeşlerimizle kutlama imkânı buluyoruz” diyerek devam etti. Pehlivan, “Ukrayna zor bir dönem geçiriyor ancak ülkenin geleceği parlak, çünkü sizin gibi değerli bir kaynağa, en önemli kaynak olan insan kaynağına sahip. Ukrayna’nın parlak geleceği sizlerin eseri olacak ve biz de bu yolda her zaman elimizden geldiğince sizi desteklemeye devam edeceğiz” diyerek sözlerini tamamladı.
+
+Türkiye Cumhuriyeti Kiev Büyükelçiliği ikinci katibi Onur Demirbaş ise Türkiye ve Ukrayna’nın ekonomik ve siyasi ilişkilerinin zirvede olduğunu, aynı şekilde başta turizm olmak üzere kültürel ve insani ilişkilerinin de mükemmele yakın bir düzeye ulaştığını söyledi. Demirbaş, çocukların 23 Nisan Çocuk Bayramını kutlarken, onlara başarılar diledi.
+
+Atlasglobal Havayolları ve Eyvap tarafından hazırlanan hediyeler katılımcı çocuklara armağan olarak sunulurken, Ukrayna’nın milli sanatı olan Vişivanka oymacılığıyla resmedilmiş, Ayasofya Cami’nin bir örneği Çernobil Çocukları Vakfı Başkanı Svetlana Vasilyevna tarafından TUİD yönetim kurulu başkanı Burak Pehlivan’a takdim edildi. Organizasyon anı fotoğrafı çekilmesiyle sona erdi.
+
+ 
+
+Kaynak : www.tuid.org.ua
+
+ 
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3793-1-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3802-2-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3803-3-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3806-4-Копировать.jpg)
+
+ 
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3809-6-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3811-7-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3812-8-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3813-9-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3814-10-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3816-11-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3824-13-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3828-14-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3835-17-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3837-18-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3839-19-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3840-20-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3842-21-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3851-24-Копировать.jpg)   ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3856-27-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3863-29-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3865-30-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3866-31-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3867-32-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3868-33-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3873-34-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3874-35-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3876-36-Копировать.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3879-37-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3881-38-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3882-39-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3883-40-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3888-42-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3894-43-Копировать.jpg)   ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3898-46-Копировать.jpg)   ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3905-49-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3906-50-Копировать.jpg)    ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3913-54-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3915-55-Копировать.jpg)    ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3921-59-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3923-60-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3924-61-Копировать.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3926-62-Копировать.jpg)    ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3942-66-Копировать.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2017/04/IMG_3945-68-Копировать.jpg)   width="450" height="300"

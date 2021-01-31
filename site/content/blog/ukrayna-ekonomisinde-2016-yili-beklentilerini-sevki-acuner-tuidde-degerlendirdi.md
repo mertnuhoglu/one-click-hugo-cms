@@ -1,0 +1,29 @@
+---
+title: 'Ukrayna ekonomisinde 2016 yılı beklentilerini Şevki Acuner, TUİD’de değerlendirdi'
+date: Thu, 11 Feb 2016 21:34:23 +0000
+draft: false
+tags: ["EBRD Şevki Acuner", "EBRD Ukraine", "EBRD Ukrayna", "Genel", "Hacı Bayram Bolat", "Haydar Koçak", "Şevki Acuner", "Tonguç Civelek", "TUİD (Türk Ukrayna İşadamları Derneği)", "Ukrayna ekonomi", "Ukrayna ekonomi 2016", "Viaçeslav Dinkov"]
+type: post
+---
+
+[![IMG_9728](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_97281.jpg)
+
+**Ukrayna ekonomisinde 2016 yılı beklentilerini Şevki Acuner, TUİD’de değerlendirdi**
+
+Ukrayna’nın en büyük yabancı sermaye yatırımcısı olan Avrupa İmar ve Kalkınma Bankası’nın(EBRD) Ukrayna genel müdürü, Şevki Acuner, Uluslararası Türk Ukrayna İşadamları Derneği genel merkezinde ülkedeki Türk işadamları ve profesyonellerle bir araya gelerek, Ukrayna ekonomisinde 2016 yılı beklentilerini değerlendirdi.  Toplantıya, TİKA Ukrayna program koordinatörü Hacı Bayram Bolat, T.C. Kiev Büyükelçiliği müsteşarı Uzay Göktürk ve Türkiye Cumhuriyeti Kiev Ticaret Müşaviri Haydar Koçak da katılım gösterdi.
+
+Oturumun moderatörlüğünü yapan TUİD başkanvekili Burak Pehlivan, Avrupa İmar ve Kalkınma Bankası’nın Ukrayna’da yaptığı kümülatif yatırımın 12 milyar Euro’yu bulduğunu, toplamda 363 projeye yatırım yapan bankanın, bugünkü 5 milyar 433 milyon €’luk portföyüyle Ukrayna’nın en büyük yatırımcısı olduğunu belirterek, böyle bir kurumun başında bir Türkiye Cumhuriyeti vatandaşının olmasından, Ukrayna Türk iş dünyası olarak gurur duyduklarını ifade etti. Pehlivan, “tam bir yıl önce burada yine Şevki Bey’i konuk etmiştik, kendisinin Ukrayna ekonomisine dönük öngörülerinin, beklentilerinin hemen hemen tamamıyla gerçekleştiğine tanıklık ettik, bugün de kendisini aramızda görmekten büyük bir memnuniyet duyuyoruz” dedi. TUİD başkanvekili bankanın Ukrayna’daki yatırımlarının %53’ünün özel sektörde olduğunu, bu noktada EBRD’nin yalnız kamuyu değil, krediye erişimi zor olan özel sektörü de desteklediğini ve böylece adeta can suyu işlevi gördüğünü söylerken; Ukrayna’nın bankanın faaliyet gösterdiği ülkelerin birçoğundan ekonomik büyüklük olarak küçük olmasına rağmen, EBRD’nin portföyünde Türkiye’nin ardından dünyada ikinci sırada yer aldığını ve böylece Ukrayna operasyonunun bir başarı hikâyesine dönüştüğününün altını çizerken, bu başarıda kuşkusuz en büyük başarının geminin kaptanı Şevki Acuner’e ait olduğunu ifade ederek, sözlerini tamamladı.
+
+Avrupa İmar ve Kalkınma Bankası Ukrayna Genel Müdürü Şevki Acuner ise, Ukrayna Türk iş dünyasıyla bir araya gelmekten her zaman mutluluk duyduğunu, ülkedeki tüm ekonomik sıkıntılara rağmen, faaliyetlerine, hatta yatırımlarına en zor zamanlarda bile devam eden Türk firmalarının, Ukrayna ekonomisi için büyük önem taşıdığını söyledi. Acuner, bankanın yol, köprü gibi altyapı yatırımlarına devam ettiğini, enerji, tarım başta olmak üzere birçok farklı sektörde projeleri desteklediğini, Lvov temsilciliğinden sonra Harkov ve Odesa temsilciliklerini de açmaya planladıklarını ifade etti. EBRD  Ukrayna genel müdürü, son bir buçuk yılda yapılan reformlar sayesinde Ukrayna ekonomisinin görece istikrara kavuştuğunu ve özellikle makroekonomik göstergeler noktasında bir başarı sağlandığını belirti.
+
+Reckitt Benckiser Ukrayna Genel Müdürü, Tonguç Civelek’in Ukrayna halkının alım gücündeki düşüşe paralel hızlı tüketim mamullerinin satış hacimlerininim azalmasının bu yıl da devam edip etmeyeceği sorusunu kıdemli bankacı, 2016 yılında bir miktar büyümenin yaşanacağını ancak iç tüketimden kaynaklanan bir büyümeden ziyade, özelleştirmeler ve yabancı sermaye yatırımlarının teşvik ettiği, daha ziyade ihracat odaklı bir büyümeye ihtiyaç duyulduğunu söyleyerek cevapladı. Şevki Acuner bir başka soru üzerine yüksek eğitimli işgücü üstün jeopolitik konumu ve sahip olduğu dünyanın en bereketli tarım topraklarıyla Ukrayna’nın müthiş bir potansiyel ve rekabet avantajına sahip olduğunu ancak bu potansiyelin gerçekleşme hızının yapısal reformların kararlılıkla uygulanması ve yolsuzlukla etkin mücadeleye bağlı olduğunu ifade etti.
+
+TUİD başkanvekili Burak Pehlivan ve Türkiye Cumhuriyeti Kiev Ticaret Müşaviri Haydar Koçak’ın, olası Türkiye Ukrayna Serbest Ticaret Antlaşmasına ilişkin görüşlerini sorduğu Acuner, bu antlaşmanın iki ülkenin de çıkarına olduğunu, ayrıca bu antlaşma sonucunda, Türkiye’den Ukrayna’ya doğrudan yatırımlarda ciddi artışlar yaşanacağı düşüncesine katıldığını belirterek cevapladı.
+
+Şevki Acuner’in, Ukrayna’daki Türk işadamları, diplomatlar ve profesyonellerle TUİD genel merkezinde gerçekleştirdiği 2016 yılı ekonomik değerlendirme toplantısı, hatıra fotoğrafı çektirilmesiyle sona erdi.
+
+
+
+[![IMG_9793](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9793.jpg)
+[![IMG_9712](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9712.jpg)![IMG_9702](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9702.jpg)![IMG_9747](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9747.jpg)![IMG_9759](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9759.jpg)![IMG_9776](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9776.jpg)
+[![IMG_9772](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9772.jpg)[![IMG_9771](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)![IMG_9821](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9821.jpg)](https://burakpehlivan.org/wp-content/uploads/2016/02/IMG_9771.jpg)

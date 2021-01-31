@@ -1,0 +1,48 @@
+---
+title: 'Ukrayna yeniden kurulurken, Türk firmaları için önemli yatırım fırsatları sunuyor'
+date: Thu, 05 Oct 2017 19:53:57 +0000
+draft: false
+tags: ["Dünya Gazetesi", "Ekonomi", "ekonomi", "reform", "TUİD (Türk Ukrayna İşadamları Derneği)", "Ukrayna", "Ukrayna"]
+type: post
+---
+
+![](https://burakpehlivan.org/wp-content/uploads/2017/10/Screen-Shot-2017-10-05-at-23.01.37.png)
+
+Dünya gazetesinin Ukrayna özel sayısı için kaleme aldığım makalede, Ukrayna ekonomisinin güncel durumunu ve ülkede gerçekleştirilen yapısal reformlar sonrasında Türk firmaları için oluşan yatırım fırsatlarını ayrıntısıyla dile getirmeye çalıştım.
+
+
+### **Ukrayna yeniden kurulurken, Türk firmaları için önemli yatırım fırsatları sunuyor**
+
+
+Ukrayna büyük bir hızla değişiyor, dönüşüyor.  Son üç buçuk yılda, ülkenin bağımsızlığa kavuştuğu ilke 23 yılda gerçekleştirilenden daha derin ve kapsamlı olarak gerçekleştirilen yapısal reformlar ileriye dönük yüksek büyüme oranları için büyük ümit veriyor. Halbuki Rusya’nın Kırım’ı ilhaki, Doğu Ukrayna’daki çatışma ortamı, Rusya ile karşılıklı ambargoların da etkisiyle ülke para birimi grivna dolar karşısında %70 değer kaybetmiş,  2014 ve 2015 yıllarında ülke ekonomisi toplamda %17 küçülürken, Merkez Bankası döviz rezervleri ise 5,5 milyar dolarla tarihi dip seviyelere gerilemişti. Bugün ise döviz rezervleri 17,6 milyar dolara çıkarken, makro istikrar  tamamen sağlandı. Bütçe açığı 2014 yılındaki %10’luk orandan, %3’ün altına geriletilirken, kamu harcamalarının milli gelire oranı yalnızca üç yıl içerisinde %53’ten, %40’a çekildi. Ülke tarihinde hiçbir zaman sahip olmadığı bir mali disipline sahip. Çari açık ise neredeyse sıfırlandı. Bankacılık sistemi düzenlenirken, 183 olan banka sayısı 92’ye indirildi. Kamu alımları elektronik alım sistemi Prozorro ile yapılarak şeffaflaştırılırken bu alanda yolsuzlukların önüne geçiliyor. Tüm bu gelişmeleri ise Batı, omurgasını IMF’in oluşturduğu 35 milyar dolarlık bir mali paketle destekliyor.
+
+Geçmişte dışarıda tamamen, toplam doğalgaz tüketiminde ise üçte iki oranında Rusya’ya bağlı olan Ukrayna, kuzey komşusundan 500 günden fazladır gaz ithal etmiyor. Türkiye’de Botaş’ın karşılığı olarak değerlendirebileceğimiz Naftagoz, Stockholm tahkiminde, Rus enerji devi Gazprom’un açtığı 40 milyar dolarlık tahkim davasını kazandı ve buradan gelebilecek mali risk de bertaraf edildi. Yine bundan çok değil beş yıl önce GSMH’nin %7’sine ulaşan açık veren Naftogaz bırakın açık vermeyi, gerçekleştirilen yapısal reformlar ve iyi yönetişimin sonucunda bütçeye kaynak aktarıyor.
+
+**Ukrayna, AB ile Serbest Ticaret Antlaşması yaparken, vizeler kalktı** 
+
+Ukrayna’nın ticari öncelikleri de değişiyor. 2014 yılında Avrupa Meydanı sonrasındaki yönetim değişikliği öncesinde ihracatının %35’ini Rusya’ya gerçekleştiren ülkeye Rusya’nın ticari ambargosu büyük zarar vermişti. Ancak Avrupa Birliği ve Kanada ile yapılan Serbest Ticaret Antlaşmalarının etkisi ve yeni ihracat pazarlarına yönelimle Ukrayna üzerinde Rusya’nın artık ekonomik bir kaldıracı kalmadı. 2017 yılının ilk altı ayında ülke ihracatı bir önceki yıla göre yüzde 24,2 artarak 20,7 milyar dolara ulaşırken, AB’nin toplam ihracattaki payı %40’a yükseldi,  Rusya’ya ihracat ise ülke ihracatınının %9,4’üne geriledi.  Ukrayna bu dönemde dünyada ihracatını en çok artıran ülkeler arasında yer aldı.
+
+Avrupa Birliği, bu yıl 11 Haziranda Ukrayna’ya vizeleri kaldırarak siyasi desteğini bir kez daha gösterdi. 1 Hazirandan itibaren ise Türkiye ve Ukrayna arasında kimlik kartıyla seyahat mümkün. Bu uygulamanın yalnızca Gürcistan ve KKTC ile yürürlükte olduğu düşünüldüğünde ülkemiz ile Ukrayna arasındaki siyasi ilişkilerin ulaştığı seviyenin yüksekliği daha iyi anlaşılabilir.
+
+Kuzeyimizde bir ülke Ukrayna yeniden kurulurken yatırım ve ticarette de birçok fırsatlar ortaya çıkıyor. Bir ülke tarihinde ancak 50-100 yıllık dönemlerde yaşanılabilecek bir süreç bu. Sovyetler Birliği yıkılıp, bu coğrafyada kartların yeniden dağıtıldığı 90’lı yıllarda ülkemiz ve iş dünyamız o büyük değişime etki edecek siyasi ve ekonomik güce sahip değildi. Ancak bugün Ukrayna’da bu dönüşüm yaşanırken ülkemiz de iş dünyamız da burada oyun kurucu ülkelerden biri. Üstelik, Rusya, Ukrayna’da ekonomik gücünü kaybederken, Batı firmaları ise yaygın yolsuzluk algısı, hukukun üstünlüğüne ilişkin kaygılar ve jeopolitik riskler nedeniyle yatırımlar konusunda oldukça ihtiyatlı. Halbuki AB ile Gümrük Birliği’ni imzaladığımız ilk yıllarda benzer koşullara Türkiye sahipti.  Birkaç yıl içinde yapısal reformların da uygulamaya başlanmasıyla ülkemize hızlı bir yabancı sermaye akışı olmuş, yüksek büyüme rakamlarına ulaşılmıştı. Ukrayna da yıllık %6-7’lik büyüme rakamlarına ulaşılabilcek aynı böyle bir dönemin öncesini bugün yaşıyor.
+
+**Dünyada iş yapma ortamı en hızlı iyileşen ülke son 7 yılda Ukrayna oldu**
+
+Dünya Bankası kolay iş yapma endeksinde 2010 yılında 157. sıradayken,  2017’de  190 ülke arasında 80. sıraya yükselerek, son yedi yılda dünyada iş ortamını en hızlı geliştiren ülke olan Ukrayna’da yatırımlar ve ticarette peki hangi sektörler ön plana çıkıyor? Yeşil tarife yasasıyla yenilenebilir enerjiye yüksek fiyattan alım garantisi veren ülkede rüzgar, güneş, ve biokütle yatırımları cazip. Dünyada sertifikalı IT uzmanı en çok olan 5 ülkeden biri olan Ukrayna’nın yıllık bilişim ihracatı 2,5 milyar dolar. Bilişim, iki ülke firmaları arasında potansiyelin bugüne kadar çok az bir bölümünün gerçekleştirilebildiği bir alan.
+
+Asgari ücretin 120 dolar olduğu Avrupa Birliği ve Kanada ile Serbest Ticaret Antlaşmalarına sahip, dört AB ülkesiyle sınırı olan Ukrayna’da imalata dönük Türk yatırımlarına gelince. Bu yatırımların önünün açılması için müzakereleri  2007 yılında başlayan,  bugün ise imzalanması artık son aşamaya gelen Türkiye Ukrayna Serbest Ticaret Antlaşmasının yürülüğe girmesi şart. Bu antlaşma ikili dış ticarete büyük bir ivme katarken, Türk firmalarının Ukrayna’da özellikle hafif sanayide ihracata dönük yatırımları için katalizör olacaktır.
+
+**Önümüzdeki üç yılda 900 kamu işletmesi özelleştirilecek** 
+
+Ukrayna’da firmalarımız açısından takip edilmesi gereken bir başka alan ise özelleştirme. Ukrayna Devletine ait aralarında film stüdyolarının, at çiftliklerinin, tarımsal işletmelerin, enerji tesislerinin, limanların ve gübre fabrikalarının da bulunduğu toplamda 3.500 işletme var. Bu işletmelerin 900’ü 2020 yılına kadar IMF ile yapılan protokol gereği özelleştirilecek. Bu da son yıllarda dünya gerçekleştirilecek en büyük özelleştirme süreçlerinden biri demek. Özelleştirmede bizim için belki de en ilgi çeken konu ise yapılacak yasal düzenlemeyle ülkenin sahip olduğu 13 Karadeniz limanının özelleştirme kapsamına alınması. İskandinavya ve Baltıklar'ı Karadeniz’e bağlayacak Viking projesi, ambargodan çıkan İran’ın kuzey güney hattında gerçekleştirmek istediği ithalat ve ihracat ile Çin’in yeni İpek yolu projesi düşünüldüğünde zaten potansiyelinin çok altında kullanılan Karadeniz limanlarının önemi önümüzdeki yıllarda daha da artacak. Karadeniz’in güneyinde, Türkiye tarafından yeni limanlar yapılıp, mevcutlara raylı sistemler bağlanırken Türk özel sektörü Ukrayna’nın Karadeniz limanlarının bir bölümünü satın alarak, Karadeniz’de zaten hızlanacak ticaret hacminin daha kısa sürede ve hacimli artmasını sağlayabilir.
+
+Ukrayna’yı dünyada özel kılan belki de en önemli özelliği toprağı. Avrupa’nın ekilebilir toprağının üçte birine sahip, dünyanın en değerli toprağı kabul edilen çernozyomum yani kara toprağın dünya rezervlerinin yine üçte birini sınırları içerisinde bulunduran ülke, ayçiçek, ayçiçek yağı, buğday, arpa ve mısır gibi ürünlerde dünyanın ilk birkaç ihracatçı ülkesi arasında yer alıyor. Nitekim çift haneli ekonomik küçülmenin yaşandığı 2014 ve 2015 yıllarında bile tarım sektöründe yatırımlarda ve ticaret hacminde sürekli büyüme sağlandı. Bugün de ülke ihracatının %40’tan fazlası bu sektörden geliyor. Ülkede, tarım arazilerinin alım satımı Mecliste ilan edilen moratoryumla 2001 yılından beri yasak. Ancak IMF’nin şartlarından biri de olan moratoryumun kaldırılması için çalışma hızlandırıldı. Bu durumda 10 milyon hektarı hazinenin elinde olan 42 milyon hektarlık dünyanın bu en değerli tarım arazilerinin alım satımı mümkün olacak. Bu da 50 milyar dolara yakın yabancı sermayeninin önümüzdeki on yılda yalnızca bu sektörde ülkeye girmesi demek. Türk tarım firmaları bu alandaki gelişmeleri de yakından takip etmeli.
+
+Ukrayna bu fırsatları sunarken, ülkede çok güçlü de bir Türk iş dünyası altyapısı var. 600 Türk sermayeli şirketin bugüne kadar yaptığı yatırımlar 2,5 milyar doları bulurken, Türk ve Ukraynalı Havayolları şirketleri Ukrayna’nın 6 ayrı şehrine haftada 100’ün üzerinde sefer düzleyerek işadamlarımız açısından ülkenin her yerini kolayca ulaşılabilir kılıyorlar. Ülkede, birçok uluslararası şirket ve finans kurumun başında Türk yöneticiler görev yaparken, Türk işadamı dernekleri yalnız başkent Kiev’de değil, Ukrayna’nın bütün büyük şehirlerinde temsilciliklere sahipler. Türk firmalarının yatırımlarını destekleyecek her türlü altyapı ve Türk girişimcilerin başka ülkelerin iş insanlarına karşı karşılaştırmalı üstünlüğü Ukrayna’da bulunuyor. İki ülke siyasi ilişkilerinin resmen başlamasının 25. yılında Ukrayna’da Türk sermayesi en etkin birkaç yabancı ülke sermayesinden biri olarak yeni Ukrayna’nın değişim ve büyüme sürecine önemli katkı yapıyor. Yeni gelecek firmalar, Karadeniz komşumuz Ukrayna ile ekonomik ve siyasi ilişkilerimizin daha da güçlenmesini sağlarken, şüphesiz iki ülke halklarının refahına da önemli etki yapacaktır.
+
+**Burak PEHLİVAN**
+
+**Uluslararası Türk Ukrayna İşadamları Derneği(TUİD)** 
+
+**Yönetim Kurulu Başkanı** 
+

@@ -1,0 +1,37 @@
+---
+title: 'Ukrayna Türk iş dünyası T.C. Kiev Büyükelçisi Güldere’nin onuruna hoş geldin yemeği verdi'
+date: Thu, 28 Feb 2019 08:18:03 +0000
+draft: false
+tags: ["Gennadiy Çizikov", "Kiev Büyükelçiliği", "Kiev Büyükelçisi", "Şevki Acuner", "TUİD (Türk Ukrayna İşadamları Derneği)", "Ukrayna Türk Toplumu", "Ukrayna Türk toplumu", "Yağmur Ahmet Güldere"]
+type: post
+---
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5781-115-1.jpg)
+
+Ukrayna’daki görevine yeni başlayan Türkiye Cumhuriyeti Kiev Büyükelçisi Yağmur Ahmet Güldere’nin onuruna, Ukrayna Türk iş dünyası tarafından, Uluslararası Türk Ukrayna İşadamları Derneği’nin ev sahipliğinde Kiev Intercontinental Otel’de hoş geldin yemeği verildi. Yemek, ülkedeki iş, siyaset, sanat ve diplomasi dünyasının geniş katılımıyla gerçekleşti. Ukrayna Sanayi ve Ticaret Odası Başkanı Gennadiy Çizikov, Avusturya Ukrayna İşadamları Derneği Başkanı Alfred F. Praus, Çin İş Derneği Başkanı Ruslan Ostupenko, Büyük Britanya Ukrayna Ticaret Odası Başkanı Bate Toms, Business Ukraine yönetim kurulu başkanı Peter Dickinson ve Kanada Ukrayna Ticaret Odası Direktörü Emma Turos gibi uluslararası iş dünyasının temsilcilerinin yanı sıra Ukrayna’nın en büyük işvereni olan Ukrayna Demiryolları’nın yönetim kurulu başkanı Şevki Acuner, kurumun CEO’su Yevgen Kravtsev, Ukrayna İş Ombudsman vekili Tatyana Korotka, Azerbaycan’ın Ukrayna Büyükelçisi Azer Hudiyev, Japonya Büyükelçiliği maslahatgüzarı Michio Harada gibi isimler de etkinliğin davetlileri arasında yer aldı.
+
+**Türkiye Ukrayna arasındaki yakınlaşma ve büyükelçiliğimizin güçlü desteği başarımızda temel faktörler**
+
+Organizasyonun açılış konuşmasını yapan TUİD Yönetim Kurulu Başkan Burak Pehlivan, Ukrayna Türk iş dünyasının yalnız Ukrayna’da değil, dünyanın birçok ülkesinde örnek olarak gösterildiğini, adeta bir model olarak görüldüğünü ifade ederek başladığı konuşmasında, son iki yılda derneğin 100’ün üzerinde faaliyetin gerçekleştirdiğini, TUİD’in 2018 yılında yurtdışındaki en başarılı Türk işadamları derneği ödülünü aldığını, ayrıca, Polonya’nın ve Ukrayna’nın büyük dostu ödülüne layık görüldüğünü hatırlattı. Pehlivan, Türkiye ve Ukrayna arasında ekonomik ve siyasi olarak altın çağın yaşandığı bir dönem içinde olduklarını, aynı şekilde Türkiye Cumhuriyeti Kiev Büyükelçiliği’nin tüm kurumlarıyla Ukrayna Türk iş dünyasına ve TUİD’e her zaman güçlü destek verdiğini ve ancak bu iki faktörün birleştiği bu ekosistem içerisinde tüm başarıların yakalandığını ifade etti. TUİD Başkanı ‘’ülkemiz için çok kritik olan Brüksel, Moskova, Şam gibi başkentlerde kariyeri şekillenen, bölgenin gerçeklerine hakim, bölge deneyimi yüksek büyükelçimiz Yağmur Ahmet Güldere’nin, Kiev’de göreve başlaması şüphesiz yalnız bizim için değil, her daim yakın işbirliği içerisinde olduğumuz uluslararası iş dünyasının temsilcileri için de çok önemli ve değerli, büyükelçimizin görevinin hayırlı olmasını diliyorum’’ dedi. Pehlivan geniş katılım için konuklara teşekkür ederek sözlerini tamamladı.
+
+**Türkiye Ukrayna Serbest Ticaret Antlaşması’nın bu yıl imzalanması hedefimiz**
+
+Türkiye Cumhuriyeti Kiev Büyükelçisi Yağmur Ahmet Güldere ise, mükemmel organizasyon için TUİD yönetimine teşekkür ederek başladığı konuşmasında, görev yaptığı her dönemde iş dünyası ile yakın ilişkiler kurduğunu ifade etti. Büyükelçi Güldere, Ukrayna’da saygın, nüfuz alanı geniş, güçlü bir Türk iş dünyası gördüğünü bundan büyük memnuniyet duyduğunu ifade ederek, iş adamlarına ve vatandaşlara her zaman büyükelçiliğin kapsının açık olduğunu söyledi. Güldere, Türkiye ve Ukrayna ekonomik ilişkilerinin en önemli gündem maddesi olan Türkiye Ukrayna Serbest Ticaret Antlaşması’nın bir an önce imzalanması için gerekli temasların devam ettiğini, bu konuya özellikle eğileceklerini belirtti, katılımcılara teşekkür etti.
+
+**Ukrayna Türk iş dünyasıyla fevkalade ilişkilere sahibiz, Türkiye stratejik partnerimiz**
+
+Ukrayna’nın en büyük ve iş örgütü olan Ukrayna Ticaret ve Sanayi Odası başkanı Gennadiy Çizikov, Türk iş dünyasıyla harika ilişkilere sahip olduklarını, Türkiye ve Ukrayna’nın gerçek manada stratejik partner olduklarını ve Türkiye Ukrayna Serbest Ticaret Antlaşması’nın ivedilikle imzalanmasını arzu ettiklerini dile getirirken, ‘’Büyükelçi Yağmur Ahmet Güldere’ye Ukrayna’daki görevinde üstün başarılar diliyorum’’ dedi.
+
+Onur İnşaat’’ın ana sponsorluğundaki etkinliğe, Dalgakıran, Demir Grup ve Limak İnşaat da destek sağlarken, TUİD tarafından T.C. Kiev Büyükelçisi Yağmur Ahmet Güldere’nin onuruna verilen hoşgeldin yemeği aile fotoğrafı çekilinmesiyle sona erdi.
+
+www.tuid.org.ua
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5965-175.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5638-70.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5613-61.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5606-58.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5619-65.jpg)![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5598-55.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5577-47.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5569-45.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5543-37.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5536-35.jpg)   ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5506-22.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5501-20.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5497-19.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5484-12.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5479-10.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5469-7.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5464-3.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5463-2.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5459-1.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5976-177.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5944-170.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5941-168.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5925-163.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5897-155.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5887-151.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5828-131.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5812-126.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5809-125.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5783-117.jpg)
+
+![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5626-66.jpg)![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5767-110.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5754-8.jpg)  ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5727-101.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5715-94.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5705-5.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5680-85.jpg) ![](https://burakpehlivan.org/wp-content/uploads/2019/02/IMG_5664-80.jpg)

@@ -1,0 +1,38 @@
+---
+title: 'Ukrayna ve Özelleştirme'
+date: Fri, 29 Jun 2012 10:43:04 +0000
+draft: false
+tags: ["Ekonomi", "euro2012", "kalkınma", "ozellestirme", "ozellestirme verileri", "Ukrayna", "Ukrayna"]
+type: post
+---
+
+![](https://burakpehlivan.org/tuid_images/ukrayna-ihale.jpg "ukrayna-ihale")
+
+Kiev’de havalar sıcak, doğa tamamen canlanmış durumda, her yer yemyeşil. Şehre 2012 Avrupa Futbol Şampiyonası’nı izlemek için yüzbinlerce yerli ve yabancı turist geldi. Özellikle Kreşatik, Sagaydaçnava, Krasnaarmeyskaya gibi caddelerde karnaval havası hakim. Artık kaldırımlardan, sokaklara, yollara taşan restoran, kafe masalarında yemekler yeniliyor, içkiler içiliyor, şarkılar söyleniyor, rakip takım taraftarları beraber, dostça maç izliyorlar. Böyle bir atmosferde teknik bir yazı yazmak bana da keyif vermiyor ancak Ukrayna için önemli bir konu olan “özelleştirme’yi” de bu yazıda ele almaktan kendimi alıkoyamıyorum. İnşallah önümüzdeki haftalarda Ukrayna’nın şampiyona maçlarını oynadığı şehirleri kendi gözümle değerlendireceğim daha “keyifli” yazılar yazacağım.
+
+Özelleştirme’nin, genel manada bir ülkenin, orada yaşayan halkın çıkarına olup olmadığı gibi bir sorunun cevabını bulmak bu yazının konusu değil. Bu tartışma belki başka bir yazıda genişçe değerlendirilebilir ancak kişisel görüşüm Ukrayna ve benzeri ülkelerde rekabetçi biçimde gerçekleştirilen özelleştirmeler son tahlilde kamunun yararına olmaktadır. Bu yazıda, özelleştirmenin serbest piyasa ekonomisi prensipleri doğrultusunda gelişmekte olan ve kamu sisteminde yolsuzlukların yoğun olduğu bir ülkede şiddetle tavsiye edildiği öngörüsünden yola çıkarak, Ukrayna’nın son 10 yıllık özelleşirme karnesini ve serüvenini ele alacağım. Bu analizi yapmadan önce ise Ukrayna’nın Sovyetler Birliği’nden miras aldığı ağır sanayi yatırımları hakkında bazı saptamalarda bulunacağım.
+
+Ukrayna, Sovyetler Birliği’nden güçlü bir sanayi ve madencilik altyapısı ile Rusya’da çıkarılan gazı Avrupa’ya ileten stratejik bir gaz dağıtım sistemi mirası aldı. Dünya’nın en büyük ilk 4 kömür üreticisinden biri olan ülkenin orta ve doğu bölgelerine yine Sovyetler zamanında önemli demir çelik üretim tesisleri yatırımları yapıldı. Kiev’de Dünya’nın en büyük kargo uçağı Antonov imal edilirken, Harkov, Turboatom ve bağlı kuruluşlarla enerji tribünlerinde Dünya üretiminin %20’sini üretir hale geldi, yine Harkov ve Dnipropetrovsk’da güçlü bir savunma sanayi kapasitesi oluşturuldu. Dnipropetrovsk aynı zamanda Sovyetler Birliği’nin füze, roket ve uzay program merkezlerinin başında geliyordu ve bugün de Rusya’nın uzay programı açısından aynı öneme sahiptir. Ukrayna’nın birçok bölgesine dağılmış kimya tesislerinde ise uygun doğalgaz(enerji) fiyatlarının da etkisiyle dünya piyasalarının talep ettiği önemli kimyasallar üretildi, üretiliyor.
+
+Ukrayna’ya, özellikle Kiev’e gelen yabancıların düştüğü genel bir yanılgıdır; Ukrayna’nın ekonomik gücünü yanlış değerlendirmek. Kiev’e ayak bastığında, düşük lüks tüketim vergileri ve görece ucuz benzinden dolayı sokaklarda yüzlerce, binlerce lüks, pahalı aracın dolaştığını gören, Kiev’in renkli sosyal yaşamına dalan yabancılar, bu ülkede insanların hiçbir şey üretmediğini, çalışmadığını ve zaten az olan kazançlarını ise har vurup harman savurduklarını düşünürler. Halbuki Sovyetler Birliği mirasının halihazırda yaşatılması ve üzerine de ek yatırımlar yapılmasıyla 46 milyonluk bu ülke 80 milyar $’ın üzerinde mal ve hizmet ihracatı yapmaktadır. 75 milyonluk yıldız ülke Türkiye’nin 135 milyar $’lık ihracatı düşünüldüğünde bu rakam hiç de küçümsenemeyecek bir rakamdır. Neredeyse Türkiye ve Ukrayna’nın kişi başına ihracatları eşittir. Ukrayna görece yüksek bu ihracata bölge ülkelerinin önemli ihracat kalemlerinden doğalgaz, petrol gibi doğal kaynaklar olmaksızın ulaşmaktadır.
+
+Ukrayna 90’lı yıllar ve 2005’lere kadar, Sovyetler Birliği’nin çöküşünün getirmiş olduğu ortamda benzer ülkelerin yaşadığı deneyimleri yaşadı. Belli gruplar, kişiler özelleştirmeden önemli tesisleri satın aldılar. Bu tesislerin, o dönemin koşullarına göre çok düşük fiyatlarla edinildiğine dair eleştiriler hep oldu, olmaya da devam edecek. Ancak neticede bu tesisleri alanlar buralara yatırım yaptılar ve ülkede önemli katma değer oluşmasını sağladılar. Bir başka önemli nokta ise bu tesislerin çoğu, Ukrayna’nın kendi insanının oldu. Birçok Doğu Avrupa ülkesinde geçtiğimiz on yıllarda yaşandığı gibi o ülkenin bankaları, en önemli sanayi tesisleri tamamen Batı sermayesinin kontrolüne girmedi.
+
+Ukrayna’da, 2005 yılından sonra ise gerçek manada özelleştirme süreci başladı. Bu süreci yazının sonuna koyduğum grafikte net bir biçimde görmek mümkün. Özellikle 2005 yılında Krivogoy Demir Çelik Fabrikası’nın %90’ının 4,8 milyar $’a satılması çok büyük bir özelleştirme başarısı oldu. Daha sonra bu sürecin hızı kesilse de 2011 yılında özellikle Ukrtelekom’un özelleştirilmesiyle son 5 yıllık özelleştirme gelirlerinden fazlası tek bir kalemde elde edildi. Hükümet, bu yıl daha agresif özelleştirme hedefleri koymuş durumda. Ukrayna’da, kamuda, bürokraside sıkıntılar olduğu bir gerçek. Kamu kuruluşlarına yatırım yapılamıyor. Özel sektör ise mülkiyet haklarından dolayı yatırım yapmakta zaman zaman isteksiz davranabiliyor. Yapılan özelleştirmelerin özelleştirmeden ziyade tekelleşmeye hizmet ettiğine dönük yaygın eleştiriler var. Bu kesimlere göre demir-çelik, kömür, enerji gibi alanlar Ahmetov’un, kimya sektörü Firtaş’ın, havacılık, petrol işleme gibi alanlar ise Kolomoyskiy’in kontrolüne giriyor. Bu eleştirilerde haklılık payı olabilir ancak sermaye birikiminin bir kalemde ve hemen sihirli bir değnek yardımıyla olmadığı da unutulmamalı. Elbette özelleştirmeler şeffaf ve Ukrayna halkının çıkarları doğrultusunda olmalıdır ancak özelleştirmenin hızla ve doğru bir biçimde yapılmasının, bu ülke vatandaşlarının çıkarına olduğu da bir gerçek.
+
+Özelleştirmeler sayesinde hem özelleştirilen firmalar çoğu zaman daha iyi yönetilme imkanına kavuşuyor, hem de bu kuruluşlar siyasetçilerin arpalığı olmaktan uzaklaşıyorlar. Daha da önemlisi bütçe imkanlarından dolayı yıllardır yapılamayan, ertelenen yatırımların önü açılmış oluyor. Ukrayna’nın yazının başında belirttiğim ağır sanayi, makine, teknoloji altyapısı çok güçlü ama günümüzde rekabet edebilmek için yalnız altyapıya sahip olmak yetmiyor. Bu yapının sürdürülebilir, rekabetçi olması çok önemli. Aksi takdirde çağımızda seri bir biçimde değişen parametreler Ukrayna’nın elinden bu imkanları hızla alır. Türkiye’nin ilk 4 ayda demir-çelik üretimi %12 artarken, Ukrayna’nın aynı oranda üretimi düşüyorsa, bunun nedenlerini tesadüflerde aramamak gerek. Ukrayna hızla özelleştirmelerini tamamlamalı, vergi barışı sağlanıp gerekli reformlar gerçekleştirilerek kişilere mülkiyet güvencesi sağlanmalı. Ancak bunlar yapıldığı takdirde Ukrayna sanayisinin amansızca ihtiyaç duyduğu yatırımlar, bu firmaların sahipleri yani özel sektör tarafından yapılabilir. Bu sayede devletin vergi gelirleri de, çalışanların maaşları da toplamda bu güzel ülkenin güzel insanlarının refahı da arttırılabilir.
+**Burak PEHLİVAN**
+
+[www.burakpehlivan.org](http://www.burakpehlivan.org/)
+[http://twitter.com/bpehlivan](http://twitter.com/bpehlivan)
+
+[![alt](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/table1.png "table1")](http://arsiv.tuid.org.ua/wp-content/uploads/2012/06/table1.png)
+
+ 
+
+Kaynak: Devlet İstatistik Komitesi
+
+\*Krivorog Demir Çelik Fabrikası’nın Arcelor tarafından 4,8 milyar $’a  alınması.
+
+\*\*Ukrayna 2011 yılında 11,5 milyar Grivna özelleşirme yaptı. Bunun 10,5 milyar Grivnası Ukrtelekom
+t. Tahmini

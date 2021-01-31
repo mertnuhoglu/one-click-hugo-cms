@@ -1,0 +1,24 @@
+---
+title: '"Odesa’daki Türk İş Dünyası, Ukrayna’daki krize rağmen görece güçleniyor"'
+date: Fri, 27 Feb 2015 07:13:53 +0000
+draft: false
+tags: ["Çetin Yılmaz", "Ediz Kentkuran", "Güçleniyor", "Kadir Yüksel", "krize", "Melih Demirtaş", "nur sağman", "Odesa Başkonsolos", "Odesa Başkonsolosluğu", "Odesa Ticaret Ataşesi", "Odesa’daki", "rağmen", "TUİD (Türk Ukrayna İşadamları Derneği)", "TUİD başkanvekili", "türk iş dünyası", "Ukrayna’daki", "Viaçeslav Dinkov"]
+type: post
+---
+
+[![fotograf](https://burakpehlivan.org/wp-content/uploads/2015/02/fotograf1.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotograf1.jpg)
+Türk Ukrayna İşadamları Derneği(TUİD) yönetim kurulu başkanvekili Burak Pehlivan, TUİD denetleme kurulu eski başkanı Viaçeslav Dinkov ve beraberindekiler ile Türkiye Cumhuriyeti Odesa Başkonsolosu Nur Sağman’a bir nezaket ziyareti gerçekleştirdi. Görüşmede genel olarak Ukrayna’nın yaşadığı ekonomik kriz ve Türk iş dünyasının karşılaştığı sorunlar konuşulurken, TUİD başkanvekili, başkonsolos Sağman’a derneğin faaliyetleri konusunda bilgi verdi. Ziyarette Türkiye Cumhuriyeti Odesa Ticaret Ataşesi Çetin Yılmaz, muavin konsoloslar Melih Demirtaş ve Kadir Yüksel ile işadamı Ediz Kentkuran da hazır bulundu.
+
+TUİD başkanvekili Burak Pehlivan, görüşmenin başında, “bundan bir buçuk yıl önce Türkiye Cumhuriyeti Odesa başkonsolosluğu olarak resmen göreve başladığınızda ilk ziyaretinizi Türk Ukrayna İşadamları Derneğinin Kiev’deki genel merkezine yapmıştınız, bu jestiniz derneğimizin kurumsal hafızasında her daim hatırlanacaktır” dedi. Pehlivan, Herson, Odesa ve Zaporoje bölgesindeki üyelerinin başkonsolosluğun desteğini her zaman hissettiğini belirterek, “başkonsolosumuz ülkenin kültür ve sanat başkenti olan Odesa’da, ülkemizin kültür ve sanatının, ülkemizden bu alanlarda çıkan değerlerinin tanıtımı konusunda ise yoğun bir çalışma yürütüyor” dedi. TUİD başkanvekili, derneğin merkezinin Kiev olmakla birlikte bugüne kadar yaptıkları en büyük sosyal sorumluluk projesinin 2012 yılında Odesa Solneçko Yetimhanesinin tadilat ve teşrifatı olarak gerçekleştirdiğini hatırlatarak, Odesa’nın Türk iş dünyası ve TUİD için çok önemli bir şehir olduğunu ifade ederek sözlerini tamamladı.
+
+TUİD Denetleme kurulu eski başkanı Viacheslav Dinkov ise, kendisinin dernekte bu dönem aktif bir görev almadığını ancak TUİD’e maddi ve manevi katkılarının Ukrayna genel müdürlüğünü yaptığı Dalgakıran şirketler gurubu olarak sürdüğünü belirterek başladığı konuşmasında, “ülkedeki krize rağmen 6 farklı şehirdeki şubelerimiz ve tamamı Ukraynalılar’dan oluşan 80’in üzerindeki personellerimizle Türk sermayeli bir firma olarak 2014 yılında da kompresör satışlarında Ukrayna’da birinciliğimizi koruduk, jeneratör satışlarında ise ülkede ilk iki firma arasındayız, krize rağmen ciromuzu ve personel sayımızı artırdık, Ukrayna’nın geleceğine inanmaya ve ülkedeki yatırımlarımıza devam ediyoruz” dedi.
+
+Türkiye Cumhuriyeti Başkonsolosu Nur Sağman, Türk Ukrayna İşadamları Derneği’nin, Ukrayna’nın geneline yayılan başarılı faaliyetlerini ilgiyle takip ve takdir ettiğini ifade ederken, Ukrayna’daki Türk iş dünyasının aktifliğinin böyle zor dönemlerde daha da değerli olduğunun belirtti. Sağman, Dalgakıran gibi başarılı firmaların Türkiye’nin bu ülkedeki imajı açısından da önemli olduğunun altını çizerken, ziyaret için TUİD heyetine teşekkür etti.
+
+Türkiye Cumhuriyeti Odesa ticaret ataşesi Çetin Yılmaz ise Ukrayna’daki sert devalüasyona, yaşanan tüm olumsuzluklara rağmen ülkedeki Türk iş dünyasının görece diğer ülke işadamlarına göre daha iyi konumda olduğunu, hatta Ukrayna’ya Türk sermayesinin ilgisinin devam ettiğini belirterek, “güçlü firmalarımızın pazara girmeyi planladığına tanıklık ettiğimiz günler yaşıyoruz, bu bölgedeki Türk iş dünyasmız krize rağmen görece güçleniyor, Odesa Ticaret Müşavirliğimiz olarak iki ülke ekonomik ilişkilerinin gelişmesi için çabalarımızı hızlandırdığımız bir dönem, ülkenin dış yatırıma ihtiyacının çok olduğu bu günlerde Türk firmalarının Ukrayna’ya ilgisi sevindirici” diyerek sözlerini tamamladı.
+
+Türkiye Cumhuriyeti Odesa Başkonsolosluğu’nda gerçekleşen kabulün sonunda TUİD başkanvekili Burak Pehlivan, Türkiye Cumhuriyeti Odesa Başkonsolosu Nur Sağman’a dernek yönetim kurulu adına bir teşekkür plaketi takdim ederken, başkonsolos Sağman, konukların onuruna maiyetiyle birlikte bir öğlen yemeği verdi.
+
+[![fotoğraf (1)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf-1.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf-1.jpg)
+[![fotoğraf (4)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf-4.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf-4.jpg)
+[![fotoğraf](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/02/fotoğraf.jpg)

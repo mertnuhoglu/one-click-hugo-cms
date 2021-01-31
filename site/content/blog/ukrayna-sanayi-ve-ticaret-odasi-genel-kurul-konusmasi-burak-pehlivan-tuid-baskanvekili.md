@@ -1,0 +1,57 @@
+---
+title: 'Ukrayna Sanayi ve Ticaret Odası Genel Kurul konuşması, Burak Pehlivan TUİD başkanvekili'
+date: Thu, 17 Sep 2015 04:58:29 +0000
+draft: false
+tags: ["Avrupa Birliği", "Avrupa’ya", "Genel Kurul", "gümrük birliği", "havacılık sektörü", "ihracatını", "konuşması", "TUİD (Türk Ukrayna İşadamları Derneği)", "TUİD başkanvekili", "Turizm sektörü", "türk havayolları", "Türkiye’nin", "Ukrayna Sanayi ve Ticaret Odası", "USTO"]
+type: post
+---
+
+[![2015-05-11 23-40-37 Screenshot](https://burakpehlivan.org/wp-content/uploads/2015/09/2015-05-11-23-40-37-Screenshot.png)](https://burakpehlivan.org/wp-content/uploads/2015/09/2015-05-11-23-40-37-Screenshot.png)Ukrayna Sanayi ve Ticaret Odası(USTO), Türkiye’de Odalar ve Borsalar Birliği’ne(TOBB) karşılık gelen bir kurum. Kurumun davetlisi olarak, ülkedeki tüm bölgelerin sanayi ve ticaret odası başkanlarının, eski Ukrayna başbakanının, bazı bakan yardımcılarının, büyükelçilerin, milletvekillerinin katılım gösterdiği genel kurullarında, Türkiye’nin Avrupa ile Gümrük Birliği ve 2001 IMF antlaşmaları sonrasında gerçekleştirdiği yapısal reformların sonuçlarını da kapsayan bir konuşma yaptım. Bu tarz davetler çok önemli ancak unutmamak gerek ki ülkemiz ekonomisi güçlü olduğu, Türk işadamı dernekleri ise başarılı oldukları sürece var oluyor, var olacak. Konuşmaya gelince genel kurul öncesi normalde süre sınırlaması olmasına rağmen Türkiye’nin deneyimleri dinleyicilerin o kadar ilgisini çekti ki, USTO başkanı başka hiçbir konuşmacıya yapılmayan bir jest ile devam etmemi rica etti. Genel kurul sonrasında ise birçok şehrin oda başkanının yanıma gelerek şehirlerinde konuşma yapmalarını talep etmeleri, milletvekillerinin ise konuşmanın bir kopyasını istemeleri beni açıkçası bir Türk olarak gururlandırdı. Genel kurulda orijinalini Rusça olarak yaptığım konuşmamın burada ise Türkçesi’ne yer verilmiştir.
+
+[![DSCN9874](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN9874.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN9874.jpg)
+
+
+Sayın bakanlar, saygıdeğer milletvekilleri, değerli başkanlar ve sayın konuklar,
+--------------------------------------------------------------------------------
+
+
+Ukrayna bugün çok zor ekonomik ve siyasi bir dönemden geçiyor. Ekonomisini dönüştürmek, Avrupa ile entegre etme arayışında. Ayrıca ekonominin her alanında reform yapmaya çalışıyor. Rekabetin artırılması, bankacılık altyapısının güçlendirilmesi, yolsuzlukla mücadele, hukukun üstünlüğünün tesisi, vergi reformu, bürokrasinin azaltılması, şeffaflık gibi alanlarda reformlar yapılmaya çalışılıyor. Avrupa ile Gümrük Birliğine gidilirken, ülkenin dış ve iç borç yükümlülüklerinin karşılanabilmesi için Uluslararası Para Fonu ile 17.5 milyar dolarlık mali paket konusunda anlaşıldı.
+
+
+Avrupa Birliği ile Gümrük Birliği Türkiye’nin Avrupa’ya ihracatını 5 kattan fazla artırdı
+-----------------------------------------------------------------------------------------
+
+
+Bir işadamı olarak bu konuşmada siyasete girmeyeceğim ve ancak ekonomik konular hakkında görüşlerimi dile getirmeye çalışacağım. Ukrayna’nın Karadeniz komşusu, vatandaşı olduğum Türkiye 90’lı yılların ortasından itibaren Ukrayna’nın bugün yaşadığına benzer bir dönemi yaşadı. Türkiye 1995 yılında Avrupa Birliği ile Gümrük Birliği antlaşması yaptığında bu antlaşmaya en çok karşı olanlar dönemin büyük sanayi işletmeleriydi. Yüksek gümrük vergileri sayesinde iç pazarda adeta monopol durumunda olan bu firmalar, Avrupa ile gümrük duvarları kalktığında Türk sanayisinin çökeceğini düşünüyorlardı, onlara göre Türk pazarı Avrupa mallarıyla dolacak, buna karşılık Türkiye’nin görece düşük standartlı ürünlerini Avrupa ülkelerin satmak mümkün olmayacaktı. Ancak onların korktukları gerçekleşmedi. Aksine Avrupa ürünlerinin Türkiye pazarına girişi rekabeti artırarak, Türk üreticilerin üretim standartlarını artırmasını sağladı. Bu sayede Türk ihracatçı firmalarının yalnızca Avrupa pazarlarına değil, kaliteli ve rekabetçi ürünlerle başka birçok ülkeye de ihracatları arttı, Türkiye sanayisi gelişti. Bugün Avrupa’da satılan televizyonların, buzdolaplarının, çamaşır makinelerinin büyük bölümü Türkiye’de üretiliyor. Dünyanın belli başlı otomobil şirketlerinin Türkiye’deki fabrikalarında yılda 1 milyondan fazla otomobil imal ediliyor. Türkiye Avrupa’nın en büyük otobüs, traktör üreticilerinden biri haline gelirken, yan sanayi ile birlikte otomotiv sektörünün toplam ihracatı, ithalatını geçmiş durumda.
+
+
+Türkiye’de havacılık sektörünün liberalleştirilmesi Türk Havayolları’nın dünyada en çok ülkeye uçan havayolu şirketi olmasının ve Avrupa’nın sektöründe en başarılı firması seçilmesinin yolunu açtı
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+Piyasayı liberalleştirmekten, rekabetten, serbest piyasadan korkmamak gerek. 2004 yılına kadar Türk Havayolları fazla özelliği olmayan, Türkiye’de, iç pazarda hakim adeta monopol konumda, devletin müdahalesinin fazla olduğu bir şirketti. 2004 yılında havacılık sektörü Türkiye’de liberalleştirildi, özel havayolu şirketlerinin önü açıldı, hat tahsisleri kolaylaştırıldı. Rekabet Türk Havayollarını iflas ettirmedi, bilakis gelişmesini sağladı. İç piyasada THY’nin Pazar payı düştü ama pazarın hızla büyümesi ile taşıdığı yolcu sayısı 5 katına çıktı. Devlet ise farklı ülkelerde büyükelçilikler açarak, yeni havalimanları inşa ederek, vizeleri kaldırarak, ülkeler arası sivil havacılık antlaşmaları yaparak Türk Havayolları’nın daha çok ülkeye uçmasının önünü açtı. Bugün THY, dünyada en çok ülkeye uçan havayolu şirketidir. İstanbul ise kolay ulaşılabilirliği sayesinde, birçok uluslararası firmanın bölge ülkeleri yönettiği bir merkez haline geline gelmiştir. Böylece İstanbul’da çok sayıda beyaz yakalı çalışan için yüksek ücretli iş pozisyonları oluşurken, İstanbul dünyada bugün en çok ziyaret edilen 6. şehirdir. THY, Ukrayna’da ise en çok yolcu taşıyan yabancı havayolu şirketidir. Herson’a 13 yıl sonra ilk uluslararası uçuşu gerçekleştirirken, kısa bir süre sonra Zaporoje seferlerine başlayacaktır. Rekabetle gelişen Türk özel havayolu şirketleri ise Lvov, Harkov, Odesa gibi şehirlere uçuyor.
+
+
+Turizm sektörü, Türkiye için çok önemli ama Ukrayna için de çok önemli
+----------------------------------------------------------------------
+
+
+Ülkeye döviz yalnızca ihracat ile sağlanmıyor, altyapısı güçlü bir turizm sektörü de önemli bir döviz kaynağı. ABD gibi gelişmiş bir ülkede bile turizm ve bağlı sektörler istihdamda çok önem taşıyor. 2008 krizinden sonra ABD’de 1 milyondan fazla kişi turizm sektöründe ek olarak istihdam edildi, bu rakam o dönemden günümüze sanayide istihdam edilen işçiden çok daha fazla. Türkiye, 1985’li yıllara kadar gerçek bir turizm ülkesi değildi, ne otelleri, ne havalimanları, ne de bu sektörde yetişmiş personeli vardı. Dönemin başbakanı Turgut Özal, Antalya, Belek, Kemer gibi şehir ve ilçelerdeki boş devlet arazilerini, turizm yatırımcılarına bedelsiz ya da çok düşük bedeller karşılığında, burada otel yatırımı yapılması karşılığında verdiğinde, Türkiye’de çok büyük tepkiler oldu ama sonuçta geri adım atmadı. Buraya yatırım yapan işadamlarından elbette yanlış yapanlar, yatırımlarını tamamlayamayanlar oldu ama sonuçları itibarıyla bugün Antalya ve çevresinde binlerce otel hizmet veriyor ve bölge dünyanın en büyük turizm bölgelerinden biri haline geldi. Türkiye, bugün yılda 35 milyondan fazla turistle dünyada en çok turist gelen 6. ülke haline gelmişse, bunda Antalya’nın önemi büyüktür. Bu turistler geçtiğimiz yıl 30 milyardan dolardan fazla bir rakamı Türkiye’de harcamıştır, bu rakam Ukrayna’nın toplam ihracatının yarısından fazladır. Özellikle ulaşım ve konaklama altyapısı geliştirilerek Ukrayna’nın Avrupa’nın en çok tercih edilen turizm destinasyonlarından biri haline dönüştürülmesi mümkün. Turizm, Ukrayna’nın yumuşak gücüne de katkıda bulunacaktır.
+
+[![DSCN9860](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN9860.jpg)](https://burakpehlivan.org/wp-content/uploads/2015/09/DSCN9860.jpg)
+
+
+Türkiye’de 2008 global krizinde, Avrupa’daki birçok ülkenin aksine hiçbir banka batmadı, krizden çok hızlı bir biçimde çıkıldı.
+-------------------------------------------------------------------------------------------------------------------------------
+
+
+2001 yılında Türkiye çok büyük bir ekonomik kriz yaşadı. Bankacılık sektörü çökerken, büyük devalüasyonlar yaşandı. Birçok bankaya devlet el koyarken, 40 milyar doların üstünde bir rakam bankada parası olanlara devlet tarafından ödendi ve Türkiye iflasın eşiğine geldi. Devlet hazinesinde para olmadığı için IMF ile çok sert koşullar içeren bir antlaşma yapıldı. Geçmişte reformlar konusunda isteksiz davranan Türk siyasetçiler, ekonomik reformları gerçekleştirmek zorunda kaldılar. Enerji, bankacılık piyasası bağımsız kurumlar tarafından yönetilmeye başlandı, Merkez Bankası siyasetten bağımsız hale getirildi. Bankacılık sisteminde reform yapıldı. Özelleştirme etkin bir biçimde yapılırken, hem devlete gelir sağlandı, hem de devlet işletmeleri piyasada rekabetçi oyuncular haline geldi. Bunun sonuncunda, Türkiye’de 2008 global krizinde, Avrupa’daki birçok ülkenin aksine hiçbir banka batmadı, krizden çok hızlı bir biçimde çıkıldı. Son 12 yılda, Türkiye Avrupa’da en faza büyüyen ülkelerden biri olurken, IMF’e borç tamamen kapatıldı, dış borcun milli gelire oranı ise artan milli gelirle dramatik bir biçimde düşürüldü. Kişi başına gelir 2001 yılında 2.500 dolarken bugün 10 bin dolara aştı. Ukrayna’da bugün, o günkü Türkiye ile benzer durumdadır ve o zamanki Türkiye’ye göre birçok avantaja sahiptir. Reformlar yolunda kararlı olunduğu, hukukun üstünlüğü sağlanıp, yolsuzlukla etkin mücadele yapıldığı takdirde, Türkiye’nin son 10 yılda başardığından çok daha fazlasını Ukrayna başarabilecektir.
+
+
+Devlet özel sektör yatırımlarının önünü açmalıdır
+-------------------------------------------------
+
+
+Konuşmamı sonlandırmadan önce küçük bir vakayı anlatmak istiyorum. 90’lı yılların sonunda Amerikan Ford Firması, Türkiye’de bir otomobil fabrikası inşa etmek istiyordu ancak buldukları uygun alan, eski bir devlet fabrikasıydı. Dönemin başbakanı ve bakanlar kurulu bu devlet fabrikasını çok uygun koşullar ile Ford’a tahsis ettiler. Kamuoyunda, arsanın çok ucuza yabancı bir firmaya verildiği gerekçesiyle büyük tepki oldu. Dönemin cumhurbaşkanı ve başbakanı ayrı partilerdendi ve birbirlerine muhaliftiler. Gazeteciler cumhurbaşkanının bu kararı eleştirmesini beklerlerken, cumhurbaşkanı eğer yeni iş alanları açılacaksa, ülkenin üretimi, ihracatı artacaksa, cumhurbaşkanlığı sarayının bahçesini de sanayicilere fabrika yapmak için veririm dedi. Elbette bu söylem sembolikti ancak devletin tüm birimlerinin ve iktidarın özel sektörü ve özellikle yabancı sermayeyi desteklediğini göstermesi açısından çok önemliydi. Bugün Ford, Türkiye’deki en büyük işverenlerin başında geliyor, her yıl yaptığı milyarlarca dolarlık ihracat ile ülkenin en büyük 3 ihracatçı firmasından biri. Türkiye Cumhuriyeti devleti ise bugüne kadar milyarlarca dolar vergi geliri elde etti ve Türkiye’nin Avrupa’nın otomobil üretim üslerinden biri olmasında o fabrikanın önemi çok büyük.
+
+Konuşmamı sabırla dinlediğiniz için teşekkür ederim.

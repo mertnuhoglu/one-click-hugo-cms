@@ -1,0 +1,11 @@
+---
+title: "Hakkında"
+date: 2020-10-12T19:17:14+03:00
+---
+
+![](/wp-content/uploads/2015/09/IMG_2576.jpg)
+
+1978 yılında İstanbul’da doğdu. Suadiye Turhan ve Mediha Tansel İlkokulu’nu birincilikle bitirdikten sonra orta ve lise öğrenimini İstanbul Erkek Lisesi’nde tamamladı. Lisede, okul takımıyla beraber satranç dalında üç İstanbul birinciliği kazandı. Lisans derecesini İstanbul Teknik Üniversitesi (İTÜ) İşletme Fakültesi Endüstri Mühendisliği bölümünde alırken, Türkiye’nin en büyük ve en etkin öğrenci derneklerinin başında gelen Endüstri Mühendisliği Kulübü’nün(İTÜ EMK) iki dönem başkanlığını yaptı. Mezuniyet sonrası Türkiye’de makine ve inşaat sektörlerinde yöneticilik görevlerinde bulundu. 2003 yılından itibaren başta Ukrayna ve Rusya olmak üzere Doğu Avrupa ülkelerine çok sayıda seyahat yaparken, seyahatler ve ticari faaliyetler sonucunda bu coğrafyayı yakından gözlemleme imkanı oldu. Burak Pehlivan, 2009 yılında, makine ve makine ekipmanları ticaretiyle uğraşan ve sektöründe Ukrayna’da pazar lideri olan Kiev merkezli Politek Impeks firmasını kurarken hala bu firmanın yönetim kurulu üyesidir.
+
+2012 yılında Doğu Avrupa’da yılın Türk işadamları derneği ödülüne layık görülen Uluslararası Türk Ukrayna İşadamları Derneği’nin(TUİD), 2011 yılından itibaren üç dönem yönetim kurulu başkanvekilliği görevini yürüten  Burak Pehlivan, 2016 yılında, TUİD yönetim kurulu başkanlığı görevine seçilmiş, 2018 yılında Polonya’da, Baltık İş Forumu’nda Polonya’nın ve Ukrayna’nın büyük dostu ödülüne layık görülmüştür.  Beşiktaş kongre üyesi ve Ukrayna Beşiktaşlılar Derneği kurucu başkanıdır. Ukrayna, Ukrayna Türkiye ilişkileri, Doğu Avrupa ülkeleri ve yaşama dair binden fazla yazı, makale, bildiri ve rapor kaleme alan; OECD, EBRD, UNDP, USAID ve Dünya Bankası gibi uluslararası kurum ve kuruluşların organizasyonlarında Ukrayna, kalkınma politikaları, Ukrayna Türkiye ekonomik ilişkileri ve serbest ticaret gibi alanlarda uzman, konuşmacı olarak da görüşlerini paylaşan ve bu konularda onlarca konferans veren Pehlivan, Almanca, İngilizce, İtalyanca ve Rusça bilmektedir. Daha önce yayımlanan yazıları ve yeni çalışmaları, sekiz yıldır [burakpehlivan.org](https://burakpehlivan.org) adlı kişisel bloğunda topluca yer almaktadır.
+
